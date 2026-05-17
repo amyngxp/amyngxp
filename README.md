@@ -1,4 +1,4 @@
-# Hi, I'm Hien Anh, or Amy ⭑.ᐟ
+# 𝐇𝐢, 𝐈'𝐦 𝐇𝐢𝐞𝐧 𝐀𝐧𝐡, 𝐨𝐫 𝐀𝐦𝐲 ⭑.ᐟ
 
 ### 🎓 Marketing, AI & Business Analytics student at USF | Hospitality Management Minor
 
