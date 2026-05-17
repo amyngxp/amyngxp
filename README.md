@@ -1,6 +1,6 @@
 # Hi, I'm Hien Anh, or Amy ⭑.ᐟ
 
-### 🎓 Marketing, AI & Business Analytics student at USF
+### 🎓 Marketing, AI & Business Analytics student at USF | Hospitality Management Minor
 
 Interests: Marketing Analytics, Social Media Strategy, Consumer Insights, Data Visualization
 
