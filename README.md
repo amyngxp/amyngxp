@@ -9,4 +9,9 @@ I love photography (especially film photography), music, community engagement & 
 I'm always excited to learn, gain hands-on experience, and continuously grow both professionally and personally.
 
 📫 Connect with me:
+
+Email: anhphamhiennguyen@usf.edu
+
 LinkedIn: https://www.linkedin.com/in/amyngxp/
+
+📁 [View My Portfolio](https://canva.link/z9j3qcqjjpxv6g7)
